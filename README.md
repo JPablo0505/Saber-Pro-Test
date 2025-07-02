@@ -9,3 +9,4 @@
 
 ## Videos
 - Delivery 2: https://youtu.be/0KsxfTxF4G4
+- Delivery 3: https://youtu.be/G8UqbgauHPw
